@@ -1,3 +1,6 @@
+![Foto](FotoMilanesa.jpg)
+
+
 = Ingredientes
 
 - 1 kg de carne cortada en bifes.
